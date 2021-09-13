@@ -1,1 +1,1 @@
-Hey, my name is Chantel but you can call me Chae. Which is pronounced as Shay.x
+Hey, my name is Chantel. You can call me Chae (pronounced as Shay) xoxo. Pleased to make your acquaintance. Have a good one, mate.;)
